@@ -1,2 +1,2 @@
- askask
+as askask
  mlink
