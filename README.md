@@ -1,2 +1,1 @@
-qqqqqqmmintq
-q
+mint
