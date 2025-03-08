@@ -1,2 +1,2 @@
-qmmintq
+qqmmintq
 q
