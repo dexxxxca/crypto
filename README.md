@@ -1,10 +1,1 @@
 readme.md
-tv
-dfg
-dfg
-hr7r
-hyfy
-fjy
-jft
-tr6
-6j
