@@ -1,4 +1,2 @@
 readme.md
 gr
-
-kkkkk
