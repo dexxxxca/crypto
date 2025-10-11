@@ -7,14 +7,3 @@ bfg
 bfgt
 rt
 rht
-nh
-7j
-7jj
-j775
-try6
-ytrw
-wyy5
-tru6
-tur6
-tru6
-tru6
