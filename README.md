@@ -1,9 +1,1 @@
 readme.md
-gb
-fbg
-fbg
-fgb
-bfg
-bfgt
-rt
-rht
