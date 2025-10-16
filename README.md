@@ -9,12 +9,3 @@ eggrggr
 erggr
 egrgr
 egrgrg
-egrgregr
-gr434
-344t
-43t4t
-t444t
-t44t4t4t4t
-rettrtre
-ert54
-ett4t
