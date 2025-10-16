@@ -13,8 +13,3 @@ dfg
 fdggf
 dgfgf
 dgg
-dfg
-dfggf
-fgfgf
-dgftr
-fdggf
