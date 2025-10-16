@@ -7,9 +7,3 @@ dhf54
 hfhdsh
 dfhh
 gfg
-dfgg
-dfgfg
-dfg
-fdggf
-dgfgf
-dgg
