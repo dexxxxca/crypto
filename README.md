@@ -8,7 +8,3 @@ dggrr
 dfgfgd
 dgfdf
 dgfgfg
-dgfgd
-dgfgf
-dgfgdfg
-dfgfgdfg
