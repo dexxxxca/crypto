@@ -1,10 +1,1 @@
 readme.md
-ettw4t
-fdt
-dtft
-dftt
-dftt
-34t4
-4tst4
-44ts4t
-fdt45te4
