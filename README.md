@@ -1,10 +1,1 @@
 readme.md
-dv
-dfb
-fbf
-bfd
-fbdfb
-dfbbf
-erg
-rggrg5
-gr55g
