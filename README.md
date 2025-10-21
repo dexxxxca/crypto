@@ -5,7 +5,3 @@ dydyfd
 yfydsfy
 hffhshsh
 dfhfdsh
-dfhfhsh
-fhhfhf
-hfdfh
-fdhfdh
