@@ -9,7 +9,3 @@ dfhfhsh
 fhhfhf
 hfdfh
 fdhfdh
-fdhhfhfh
-hfdshffdgg
-fhdhsdfh
-dfh5e
