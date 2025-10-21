@@ -12,10 +12,4 @@ fdhfdh
 fdhhfhfh
 hfdshffdgg
 fhdhsdfh
-dfhfdsh
-fgbgf
-dgff
-dffhf
-fdhfd
-dfhfh
 dfh5e
