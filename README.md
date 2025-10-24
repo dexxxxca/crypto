@@ -1,10 +1,1 @@
-ddreadme.md
-xbfd
-dfgg
-dfgfg
-dfgfdg
-dsfggf
-dfgfdg
-dfgfdg
-dfgerg
-dfgfd
+readme.md
