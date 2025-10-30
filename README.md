@@ -1,12 +1,1 @@
 readme.md
-njj
-fgf
-dasfdf
-sdffads
-dsfadsfd
-dsadffd
-adsfdaf
-dasfda
-asdfd
-dasffd
-asdffd
