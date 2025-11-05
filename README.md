@@ -1,12 +1,1 @@
 readme.md
-fgrgfd
-bjjk
-fgdfg
-dfggfd
-dsfgg
-sfdgf
-sdfgdf
-dfggf
-fdggf
-dfgt
-dfggf
