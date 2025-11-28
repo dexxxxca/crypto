@@ -9,10 +9,4 @@ sdfggfs
 sdfggf
 sgfgd
 sgfdgf
-fgdgfsd
-sdgfgfd
-sdgffgd
-sdggf
-sfgdgf
-fgsdfg
-dsfggf
+fgdgfs
