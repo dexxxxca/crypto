@@ -1,10 +1,1 @@
 readme.md
-dddg
-dsfdaf
-sadfd
-dasfafd
-afdasf
-adfds
-asddf
-afsdfds
-fdasfd
