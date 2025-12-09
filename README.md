@@ -1,10 +1,1 @@
 readme.md
-sdf
-dsadf
-asfdfd
-sdfds
-sfdfds
-sdffds
-sfddsfa
-dsffds
-sdffds
