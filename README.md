@@ -9,8 +9,3 @@ asdf
 asdf
 asd
 adsf
-adsf
-adf
-sdaffd
-asdfd
-adsfd
