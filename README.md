@@ -9,16 +9,6 @@ asdf
 asdf
 asdew
 dsf
-asdf
-safd
-asdffd
-sadffds
-asdfdfs
-asdffd
-sadfdf
-sadfd
-asdffsda
-asdffds
 asdffds
 asdffds
 dfsdf
