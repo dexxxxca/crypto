@@ -10,11 +10,6 @@ dsgf
 dgsgf
 dgsg
 dsdgf
-dfgdgf
-dgfsgdf
-dsg
-dgfgf
-dgsffgd
 dfggdf
 dgsgf
 dsgf
