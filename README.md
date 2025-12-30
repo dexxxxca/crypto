@@ -1,16 +1,1 @@
 readme.md
-vfcvx
-zxvc
-xzcv
-zxv
-xvc
-xvc
-xzcv
-xzvc
-zxcv
-xcvz
-zvc
-zxcv
-xzcvcv
-xcvvc
-cvx
