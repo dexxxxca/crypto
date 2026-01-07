@@ -2,12 +2,4 @@ readme.md
 gfd
 fdg
 sdfg
-sgdf
-gdfs
-fd
-sgfd
-gsdf
-sfgd
-gfds
-sgdf
-sdfg
+sg
