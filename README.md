@@ -1,11 +1,1 @@
 readme.md
-xg
-fgd
-fg
-dfg
-dfgfd
-dfgdfg
-dfgfd
-dfdgf
-llll
-lll
