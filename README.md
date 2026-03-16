@@ -1,14 +1,4 @@
 readme.md
 df
 gbg
-dbf
-dfb
-dfb
-sdgg
-sdgg
-sdg
-sgdgg
-sgg
-sgdsg
-sdggsd
-sdgsgd
+d
