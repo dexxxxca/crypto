@@ -3,14 +3,3 @@ vcxcx
 xcvvcx
 asdfd
 asdfd
-sdfsda
-sdafdfs
-sadfdf
-asdf
-asddfa
-sadfaf
-asdf
-asdfdas
-asdf
-asdfasd
-asdfdf
