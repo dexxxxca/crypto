@@ -1,10 +1,1 @@
 readme.md
-fgf
-dgf
-dfg
-dfg
-dfg
-dfg
-dfg
-dfg
-dfggdf
